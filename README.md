@@ -3,7 +3,7 @@
 
 Audio/Video Slides (Youtube public link): [click here](https://www.youtube.com/watch?v=qlAoMFWXEEM&feature=youtu.be)
 
-PPT(in pdf format): [click here](https://students.iitmandi.ac.in/~sagar_ghai/minion/minion.pdf)
+PPT(in pdf format): [click here](https://drive.google.com/file/d/1EHDyd2dno58YGTTQSGycbTXnEvYKNXS_/view?usp=sharing)
 
 
 ## Introduction
